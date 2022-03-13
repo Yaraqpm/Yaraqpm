@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @Yaraqpm
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 👋 Hi, I’m Yunus❤️
+- 👀 ...
+- 🌱 ...
 - 💞️ Y💘C :)
-- 📫 How to reach me: INSTA:t_n_c_32
+- 📫 How to reach me:
+ INSTA:t_n_c_32
 BRAWL STARS ID: Y99CR8R0
 
 <!---
